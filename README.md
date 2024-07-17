@@ -1,1 +1,0 @@
-# UAS-Heri.semester6
